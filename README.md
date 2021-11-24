@@ -12,5 +12,3 @@
 </td>
 </tr>
 </table>
-
-![meme](meme.gif)
