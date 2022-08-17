@@ -1,3 +1,5 @@
+![](https://count.getloli.com/get/@veritas501?theme=asoul)
+
 <table border="0">
 <tr>
 <td>
