@@ -3,7 +3,7 @@
 <tr>
 <td>
 
-![](https://count.getloli.com/get/@veritas501?theme=asoul)
+![](https://count.getloli.com/get/@veritas501?theme=rule34)
 
 </td>
 <td>
